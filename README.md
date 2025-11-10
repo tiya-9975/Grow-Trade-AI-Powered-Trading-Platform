@@ -1,1 +1,0 @@
-# Grow-Trade-AI-Powered-Trading-Platform
